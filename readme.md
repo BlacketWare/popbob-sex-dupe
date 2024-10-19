@@ -1,6 +1,9 @@
 # gamer can do nothing, the script is undetectable
 <img width="614" alt="Screenshot 2024-10-19 at 10 17 16 AM" src="https://github.com/user-attachments/assets/aec1b916-f21c-4181-8bbe-f037133b3cb1">
 
+# proof it works
+<img width="551" alt="Screenshot 2024-10-19 at 10 27 37 AM" src="https://github.com/user-attachments/assets/d6167108-dd35-460e-bce7-2284b9a4a969">
+
 # how to do the new POPBOB SEX DUPE
 ![image](https://github.com/user-attachments/assets/c7f43dbe-4bb3-4e3d-89f4-2e11d70d9740)
 
