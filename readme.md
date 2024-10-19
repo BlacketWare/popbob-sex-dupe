@@ -14,7 +14,11 @@
 ![image](https://github.com/user-attachments/assets/c3da7043-4e85-4422-85bf-4ee84246630c)
 ![image](https://github.com/user-attachments/assets/4340b45f-edca-4e07-8abb-c63b2513871d)
 
-=== original readme below ===
+# a couple idiots even fell for it LOL!
+<img width="380" alt="Screenshot 2024-10-19 at 10 50 07 AM" src="https://github.com/user-attachments/assets/e1b836e3-bd59-43a7-913e-d2dd9192598e">
+
+
+# === original readme below ===
 
 # how to do the new POPBOB SEX DUPE
 ![image](https://github.com/user-attachments/assets/c7f43dbe-4bb3-4e3d-89f4-2e11d70d9740)
