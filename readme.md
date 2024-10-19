@@ -1,11 +1,13 @@
-# gamer can do nothing, the script is undetectable
-<img width="614" alt="Screenshot 2024-10-19 at 10 17 16 AM" src="https://github.com/user-attachments/assets/aec1b916-f21c-4181-8bbe-f037133b3cb1">
+# xotic exposed for being fake, but this is the full competence of blacket staff:
+![image](https://github.com/user-attachments/assets/d6b05d82-dcd8-4cb4-88f9-d4cee97ca8f7)
+![image](https://github.com/user-attachments/assets/fe7a78e4-789a-4cb7-97c7-8d210a0e68a3)
+![image](https://github.com/user-attachments/assets/b317216b-29ae-426c-a32f-1ae8c1e42dd7)
+![image](https://github.com/user-attachments/assets/f868fc90-c2c3-41fa-92aa-df0b1140b9d2)
+![image](https://github.com/user-attachments/assets/ad3603d2-c918-4372-8737-4e719ade651d)
+![image](https://github.com/user-attachments/assets/c3da7043-4e85-4422-85bf-4ee84246630c)
+![image](https://github.com/user-attachments/assets/4340b45f-edca-4e07-8abb-c63b2513871d)
 
-# proof it works
-<img width="551" alt="Screenshot 2024-10-19 at 10 27 37 AM" src="https://github.com/user-attachments/assets/d6167108-dd35-460e-bce7-2284b9a4a969">
-
-# cant stop this
-<img width="532" alt="Screenshot 2024-10-19 at 10 28 58 AM" src="https://github.com/user-attachments/assets/c3da7043-4e85-4422-85bf-4ee84246630c">
+=== original readme below ===
 
 # how to do the new POPBOB SEX DUPE
 ![image](https://github.com/user-attachments/assets/c7f43dbe-4bb3-4e3d-89f4-2e11d70d9740)
