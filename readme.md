@@ -1,4 +1,11 @@
 # xotic exposed for being fake, but this is the full competence of blacket staff:
+### (nice one gamer)
+![image](https://github.com/user-attachments/assets/15965c4c-5224-49df-838e-7d4ac879efd0)
+![image](https://github.com/user-attachments/assets/584777e1-bf9d-48f3-af23-63d6766d92ed)
+![image](https://github.com/user-attachments/assets/15d6e05c-683c-44f6-9eb5-7ed079bbfd4a)
+![image](https://github.com/user-attachments/assets/6f4e0cfc-c62d-432e-941e-a519509e6da4)
+![image](https://github.com/user-attachments/assets/88e46d8a-aece-48aa-ad82-841c9d993c16)
+![image](https://github.com/user-attachments/assets/3cce946b-23b5-40b6-af34-66154f326bfb)
 ![image](https://github.com/user-attachments/assets/d6b05d82-dcd8-4cb4-88f9-d4cee97ca8f7)
 ![image](https://github.com/user-attachments/assets/fe7a78e4-789a-4cb7-97c7-8d210a0e68a3)
 ![image](https://github.com/user-attachments/assets/b317216b-29ae-426c-a32f-1ae8c1e42dd7)
